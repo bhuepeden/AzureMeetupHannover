@@ -1,1 +1,1 @@
-# Kickoff Meeting am 5. April 2017
+# Kickoff Meeting (5. April 2017)
